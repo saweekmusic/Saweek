@@ -1,16 +1,12 @@
-### Hi there 👋
+# Hi everyone!
 
-<!--
-**Saweek/Saweek** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hi everyone! I'm SAWEEK and i'm 16. My full name is Svyatoslav Trofimenko. I'm a music producer, programmer, designer, multi-instrumentalist.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🔭 I'm currently working on one secret project) you will find out when I will exhibit)
+- 🌱 I'm currently studying to be a conductor at the College of Music.
+- 🤔 I need help with American English, because almost everything that is written here was written through a translator)
+- ⚡ Fun fact: ... and you will already find out when communicating with me)
+### My Contacts
+- Instagram: @saweek_music
+- Twitter: @saweek_music
+- Mail: saweek.official@gmail.com
