@@ -1,11 +1,11 @@
 # Hi everyone!
 
-Hi everyone! I'm SAWEEK and I'm 19. My full name is Svyatoslav Trofimenko. I'm music producer, programmer, designer, multi-instrumentalist.
+Hey! I'm SAWEEK and I'm 19. My full name is Svyatoslav Trofimenko. I'm music producer, programmer, designer, multi-instrumentalist and much more...
 
-- 🌱 I'm currently finishing at the College of Music in Chernihiv, Ukraine while being in Denmark.
-- ⚡ Fun fact: ... and you will already find out when communicating with me
+- 🌱 I'm currently finishing a Music College in Chernihiv, Ukraine, while being in Denmark.
+- 🤪 ADHD
 
 ### My Contacts
 - Instagram: @saweekmusic
-- Twitter: @saweekmusic
+- Telegram: @saweekmusic
 - Mail: saweek.official@gmail.com
